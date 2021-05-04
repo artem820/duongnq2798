@@ -3,6 +3,13 @@
 <!--
 **duongnq2798/duongnq2798** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
+this is my skype id. Can we become a friend?
+Please ping me on skype:)
+Thanks.
+
+https://join.skype.com/invite/Eemb70Ap3dot
+
+
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
